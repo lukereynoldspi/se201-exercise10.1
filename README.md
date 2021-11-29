@@ -2,6 +2,6 @@
 
 The visions dancing in my mind (brain)
 
-The early dawn, the shades of time
+The early dawn, 🔥 the shades of time ⌛
 
 Twilight 🌌 crawling through my windowpane 🪟
