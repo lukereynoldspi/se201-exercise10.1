@@ -4,4 +4,4 @@ The visions dancing in my mind
 
 The early dawn, the shades of time
 
-Twilight crawling through my windowpane
+Twilight 🌌 crawling through my windowpane 🪟
